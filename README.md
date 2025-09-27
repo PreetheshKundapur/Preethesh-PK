@@ -1,2 +1,2 @@
-# Preethesh-PK
+# Preethesh
 Hello World ! Welcome to my Profile
